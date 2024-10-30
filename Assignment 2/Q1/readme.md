@@ -1,0 +1,5 @@
+Thinking process: 
+
+
+Output:
+
